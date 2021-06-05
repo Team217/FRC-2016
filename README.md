@@ -20,10 +20,6 @@ shstock@umich.edu(before 2020)
 stockmanstephen3@gmail.com(2020-)
 586-899-5201
 
-#####Giulio Vario
-gtvario@yahoo.com
-586-921-0087
-
 #####Hayden Chace
 hayden.chace@yahoo.com
 586-403-2229
